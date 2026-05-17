@@ -1,5 +1,5 @@
 <p align="center">
-   **how can i lose when i exist in something i made?** <br />
+   𝚑𝚘𝚠 𝚌𝚊𝚗 𝚒 𝚕𝚘𝚜𝚎 𝚠𝚑𝚎𝚗 𝚒 𝚎𝚡𝚒𝚜𝚝 𝚒𝚗 𝚜𝚘𝚖𝚎𝚝𝚑𝚒𝚗𝚐 𝚒 𝚖𝚊𝚍𝚎? <br />
   I've been developing cheating related projects for 8 years. ( cool projects are private for now :3 ) <br />
 Never lose faith in your project, there's always room for improvement and your time will reflect your results.<br />
   My discord is: reimaginate<br />
